@@ -1,2 +1,2 @@
 # assessmentt
-あなたのいいところ診断ゲーム
+totottttttttが作ったあなたのいいところ診断
